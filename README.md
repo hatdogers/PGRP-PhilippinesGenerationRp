@@ -1,2 +1,2 @@
 # PGRP-PhilippinesGenerationRp
-Samp web.
+wala to.. basta legend to 
